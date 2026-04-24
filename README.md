@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا سحر الليل في صمتي العميق
+> أنا مشتاق وعيناكِ الطريق
+> قلبي ينادي في ليل طويل
+> ونار العشق في قلبي دليل
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
